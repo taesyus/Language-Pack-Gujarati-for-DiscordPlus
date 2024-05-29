@@ -1,0 +1,1 @@
+# Language-Pack-Gujarati-for-DiscordPlus
